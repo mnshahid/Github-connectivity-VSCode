@@ -1,1 +1,1 @@
-Author Muhammad Naveed Shahid
+Author - Muhammad Naveed Shahid
